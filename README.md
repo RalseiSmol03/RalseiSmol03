@@ -1,4 +1,4 @@
-# NOTE
+# My Info
 - My YouTube Channel! [Ralsei](https://youtube.com/@ralsei.smol.03)
 
 ## Haii!! My name is ~~Ralsei~~ Merceder Benz. I'm a baa, I love helping people even they're using me haha. My favorite color is Green, Purple and Pink!
